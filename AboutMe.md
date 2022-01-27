@@ -10,3 +10,11 @@ I am a 22 year old college student, and while my major is Computer Science, I am
 | HEMA | You can practice hema, or european sword play, just about anywhere. As for places to learn, you would just need to look up a dojo near you. | This can range from about $20 to well over $200, depending on how much you enjoy it |
 | Gaming | Gaming can be done from anywhere, and houses all sorts of people | How much you spend, depends on how competitive you are, or how much you generally enjoy it. You should expect to spend at least 400 on a console. I personally spend well over 3000 on my PC |
 | Dancing | Truly something you can do anywhere, as long as there's a beat and a will to dance | This one is completely free! Only thing you need to pay is your time, as learning can be very time consuming |
+
+---
+
+## My favorite quotes
+
+> "If you live for yourself, you've only got yourself to blame. So, I can't really blame anyone else, and I don't have any regrets." -*Kyoko Sakura*
+
+> "If you're not 100% sure why you're doing it, you'll most definitely regret it later" -*Mami Tomoe*
