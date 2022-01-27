@@ -12,7 +12,7 @@ As for giving step by step directions, I can not do that. I can not, and have ne
 
 ### Food I recommend
 
-*Whiskey Burger
-*Wings, on wing night
-*Nachos, on wing night
+* Whiskey Burger
+* Wings, on wing night
+* Nachos, on wing night
 
